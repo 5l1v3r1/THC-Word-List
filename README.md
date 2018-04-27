@@ -1,4 +1,4 @@
-![img](https://u-static.haozhaopian.net/assets/share/uid_736f844cb459474d9aec089ca052e16as/122a3cca-2f7f-4b58-a641-13f7f169b918.jpg)
+![img](https://u-static.haozhaopian.net/assets/share/uid_736f844cb459474d9aec089ca052e16as/a7c856a0-1d22-4fc2-b025-772c91171c23.jpg)
 # THC Word List![test](https://cdn0.iconfinder.com/data/icons/smoking-1/512/Smoking_marijuana_bong_pipe-48.png)
 
 ***Word List Creator 0.4.2.0-1***
